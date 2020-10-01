@@ -13,6 +13,7 @@ The pesto paste freezes well -- good to split up in small tupperwares to able to
 * Juice of 1 lemon
 * 100g pine nuts
 * 1/2c Parmesan or pecorino cheese
+* 6 cloves of garlic
 * 1 tsp salt
 * 1/2 tsp pepper
 * 1/2 cup olive oil
